@@ -1,5 +1,5 @@
 - 👷‍♀️ Khushali Ekbote | Civil Engineer & Project Management Specialist
-- Assistant Project Manager at IMCO LTD
+- Assistant Project Manager at IMKO LTD
 - [![LinkedIn](https://img.shields.io/badge/LinkedIn-Connect-%230A66C2)](www.linkedin.com/in/khushali-ekbote) [![Email](https://img.shields.io/badge/Email-Contact-%23D14836)](mailto:ekbotekhushali@gmail.com)
 
 
