@@ -4,7 +4,16 @@
 
 Results-driven Project Manager and Civil Engineer with expertise in sustainable infrastructure development. Combines technical engineering proficiency with stakeholder management skills to deliver projects efficiently through optimized resource allocation and quality control. Passionate about integrating renewable energy solutions into infrastructure projects.
 
-Skills: Project Management :- Stakeholder Engagement, Risk Analysis & Mitigation, Contract Management,Resource Allocation        / Software Expertise :- Procore, AutoCAD 2D & 3D, SketchUp, Revit, Microsoft Excel & Office, MS Project, Trello / Core skills :- Infrastructure Management, Organisational Leadership, Strategic Planning, Negotiation, Land Development Key Strengths: Leadership, Time Managment, Effectivity, Problem-Solving, Development, Networking
+🛠️ 𝕋𝕖𝕔𝕙𝕟𝕚𝕔𝕒𝕝 𝕊𝕜𝕚𝕝𝕝𝕤
+
+• Project Management :- Stakeholder Engagement, Risk Analysis & Mitigation, Contract Management,Resource Allocation        
+
+•  Software Expertise :- Procore, AutoCAD 2D & 3D, SketchUp, Revit, Microsoft Excel & Office, MS Project, Trello 
+
+• Core skills :- Infrastructure Management, Organisational Leadership, Strategic Planning, Negotiation, Land Development 
+
+• Key Strengths: Leadership, Time Managment, Effectivity, Problem-Solving, Development, Networking
+
 
 
 
